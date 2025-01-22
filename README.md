@@ -1,0 +1,1 @@
+# blue-tick-ooportunity-for-today
